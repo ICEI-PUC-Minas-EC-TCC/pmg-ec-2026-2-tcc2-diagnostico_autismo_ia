@@ -1,0 +1,1 @@
+# pmg-ec-2026-2-tcc2-diagnostico_autismo_ia
